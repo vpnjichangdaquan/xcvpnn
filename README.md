@@ -16,11 +16,11 @@
 
 **官方注册入口：**
 
-👉 [星辰VPN入口](https://a.wwaann.com/?s=xcvpn)
+👉 [星辰VPN入口](https://a.ggddxx.com/?s=xcvpn)
 
 如果入口无法访问，也可以查看其他可用机场：
 
-[备用](https://wwaann.com/)
+[备用](https://ggddxx.com/)
 
 ## 📦 套餐价格与配置
 
@@ -180,8 +180,8 @@
 
 想了解更多星辰VPN机场套餐价格、节点信息和具体服务权益，可以通过以下入口查看：
 
-- **星辰VPN注册入口：** [星辰VPN入口](https://a.wwaann.com/?s=xcvpn)
-- **其他可用机场：** [备用](https://wwaann.com/)
+- **星辰VPN注册入口：** [星辰VPN入口](https://a.ggddxx.com/?s=xcvpn)
+- **其他可用机场：** [备用](https://ggddxx.com/)
 ---
 
 *说明：本文套餐价格、节点数量及功能参数依据公开页面整理，可能随服务商调整而变化。本文为独立信息整理，不代表GitHub官方推荐或担保。请遵守所在地法律法规及相关服务平台的使用规则。*
